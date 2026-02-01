@@ -1,5 +1,3 @@
-<meta name="description" content="✅ NBA VIP Betting Tips in Telegram.">
-<meta name="author" content="NBA Telegram">
 # 🏀 NBA VIP TIPS - Free Telegram Channel for Betting
 
 Welcome to **NBA VIP TIPS**, a professional **Telegram** channel focused on high-quality **NBA** betting insights. This project is designed for **basketball** fans who want reliable **tips**, smart **bets**, and consistent **predictions** based on real data and expert analysis.
